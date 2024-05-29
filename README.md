@@ -1,0 +1,2 @@
+# exercicios
+resolvendo exercícios  !!
